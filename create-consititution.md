@@ -1,6 +1,3 @@
-Thik hai 🙂
-Main **bohot simple**, bilkul school-level easy language me samjhati hoon — constitution kya hoti hai aur kaise banate hain.
-Aap bas yeh padho, 2 minute me sab clear ho jayega.
 
 ---
 
